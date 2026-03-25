@@ -1,3 +1,3 @@
-## helloo! i'm blueish, a roblox programmer/scripter and a roblox ui designer/interface designer with over 3+ years of experience!
+## helloo!
 
-![booomtherte](https://github.com/user-attachments/assets/6f523b91-91a5-4647-b11d-1f7a2123c6da) bababababbwqebqwe
+![booomtherte (1)](https://github.com/user-attachments/assets/6ffc0015-9592-43eb-ae19-565b5865df19) i'm blueish! a roblox programmer and an user interface designer with over 3+ years of experience! 
