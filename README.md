@@ -1,4 +1,8 @@
-## ![booomtherte (1) (1)](https://github.com/user-attachments/assets/66859b73-fc1f-42bc-91d7-53df200ae9ad) 🎮 my portfolio
+## 🎮 my portfolio
+
+
+
+![booomtherte (1) (1)](https://github.com/user-attachments/assets/66859b73-fc1f-42bc-91d7-53df200ae9ad) 
 
 # 👋 about me!
 
