@@ -51,5 +51,6 @@ usually free through the day when commissions are open!
 
 ## 📞 contact info!
 
-discord user: blueish_yt_
-roblox user: adaaaam29
+discord user: **blueish_yt_**
+
+roblox user: **adaaaam29**
