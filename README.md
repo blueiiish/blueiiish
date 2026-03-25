@@ -42,11 +42,7 @@ current payment method:
 
 * paypal
 
-rates:
-
-* small systems: 1-5 USD
-* normal systems: 5-10 USD
-* complex systems: between 10 USD to a negotiable price!
+prices are negotiable!
   
 ## 🎯 availability!
 
