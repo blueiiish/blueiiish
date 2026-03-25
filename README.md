@@ -1,1 +1,3 @@
-## Hello! <img width="894" height="437" alt="image" src="https://github.com/user-attachments/assets/1ca93a56-30f7-4481-9de5-aefa3d43ff17" />
+## helloo! i'm blueish, a roblox programmer/scripter and a roblox ui designer/interface designer with over 3+ years of experience!
+
+![booomtherte](https://github.com/user-attachments/assets/6f523b91-91a5-4647-b11d-1f7a2123c6da) bababababbwqebqwe
