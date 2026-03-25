@@ -36,11 +36,17 @@ hellooo! i'm **blueish**, a roblox developer who specializes in **programming an
 
 * phsyics-related systems
   
-## 🧪 currently learning!
+## 💵 payment!
 
-* c++,
-* c,
-* js,
+current payment method:
+
+* paypal
+
+rates:
+
+* small systems: 1-5 USD
+* normal systems: 5-10 USD
+* complex systems: between 10 USD to a negotiable price!
   
 ## 🎯 availability!
 
